@@ -1,2 +1,2 @@
 # CV
-![image](https://t3.ftcdn.net/jpg/05/24/30/02/360_F_524300228_egMskw0zvvdwNUFPeJLlplclKzFamXBk.jpg)
+![image](https://github.com/MY-EG/CV/assets/158834031/7183955e-75cb-4214-9eb4-86be164f2433)
